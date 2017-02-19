@@ -1,1 +1,1 @@
-# Milostná písomečka (GJH edícia)
+# Milostný dopis (GJH edícia)
